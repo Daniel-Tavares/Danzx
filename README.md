@@ -9,4 +9,5 @@ Meu foco na plataforma está relacionado à:
 • Minha organização e desenvolvimento pessoal em programação 📖 ;
 
 Email para contato: ➡ dantavaresim@gmail.com
+
 Instagram para contato: ➡ daniel__tds
